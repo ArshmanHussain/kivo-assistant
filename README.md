@@ -30,4 +30,4 @@ What’s next:
 
 Thanks for checking it out!
 
-How’s this? Simple, human, and no signs of AI formatting. Want it even more casual or a bit more detailed?
+
